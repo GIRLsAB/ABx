@@ -50,7 +50,8 @@ To use it, you must first join:
 
 # ✨ By ~ [ABsUPs](https://t.me/ABsUPs)
 
-
+<br>  <!-- Adds space -->
+<br>  <!-- Adds space -->
 
 # 📢 𝗪𝗘𝗟𝗖𝗢𝗠𝗘 𝗧𝗢 𝗢𝗨𝗥 𝗢𝗙𝗙𝗜𝗖𝗜𝗔𝗟 𝗕𝗔𝗖𝗞𝗨𝗣 𝗖𝗛𝗔𝗡𝗡𝗘𝗟 📢
 
@@ -97,7 +98,8 @@ Your presence makes our community **stronger, happier, and more respectful** eve
 
 # ✨ By ~ [ABsUPs](https://t.me/ABsUPs)
 
-
+<br>  <!-- Adds space -->
+<br>  <!-- Adds space -->
 
 # 📢 Welcome to Our Official 18+ Hangout Group
 
@@ -138,3 +140,42 @@ Thank you for joining and supporting this adult hangout. Your presence makes the
 
 **By ~ [@ABsUPs](https://t.me/ABsUPs)**
 
+
+<br>  <!-- Adds space -->
+<br>  <!-- Adds space -->
+
+
+# 📲 Welcome to ABx Adult Bot 🔞
+
+## What can this bot do?
+
+This bot is for **adults only (18+)**.  
+To use it, you must first join our:  
+- 📢 **CHANNEL** ~ [@ABsXs](https://t.me/ABsXs)  
+- 👥 **GROUP** ~ [@AXsXCs](https://t.me/AXsXCs)
+
+---
+
+⚠️ **Important Notice:**  
+- If you are **under 18**, please do not use this bot 🚫.  
+- We do not own any shared media; **all rights belong to the original creators** ⚖️.  
+- Content is shared under **Fair Use (Section 107, Copyright Act 1976)** for **adult users only**.  
+- Use safely and responsibly 💝
+
+---
+
+## 💖 Stay connected, enjoy responsibly!
+
+<p align="center">
+  <a href="https://t.me/ABsXs">
+    <img src="https://img.shields.io/badge/📢%20Join%20Channel-ABx-blueviolet?style=for-the-badge&logo=telegram&logoColor=white&labelColor=2CA5E0" alt="Join Telegram Channel"/>
+  </a>
+  &nbsp;&nbsp;
+  <a href="https://t.me/AXsXCs">
+    <img src="https://img.shields.io/badge/👥%20Join%20Group-ABx-green?style=for-the-badge&logo=telegram&logoColor=white&labelColor=28A745" alt="Join Telegram Group"/>
+  </a>
+</p>
+
+---
+
+**By ~ [@ABsUPs](https://t.me/ABsUPs)**  
