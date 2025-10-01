@@ -52,4 +52,49 @@ To use it, you must first join:
 
 
 
+# 📢 𝗪𝗘𝗟𝗖𝗢𝗠𝗘 𝗧𝗢 𝗢𝗨𝗥 𝗢𝗙𝗙𝗜𝗖𝗜𝗔𝗟 𝗕𝗔𝗖𝗞𝗨𝗣 𝗖𝗛𝗔𝗡𝗡𝗘𝗟 📢
+
+<p align="center">
+  <a href="https://t.me/ABsUPs">
+    <img src="https://img.shields.io/badge/📢%20Join%20Channel-ABsXs-blueviolet?style=for-the-badge&logo=telegram&logoColor=white&labelColor=2CA5E0" alt="Join Telegram Channel"/>
+  </a>
+</p>
+
+
+
+💖 **Dear Members,**  
+
+This channel has been specially created as the **official backup hub** for all our groups and channels — including **anime, adult (18+)**, and other content.  
+If any of our main channels face issues, you will still get updates, links, and content here without interruption.  
+
+---
+
+⚠️ **Important Note :**  
+- For **anime & general content** → Open for all.  
+- For **adult content** → Strictly **18+ only**. If you are underage, kindly leave respectfully.  
+
+---
+
+⚖️ **Respect & Rights :**  
+We do not own the videos, audios, images, or files shared here.  
+All rights belong to the original creators. Content is organized and shared only for community convenience under **Fair Use (Section 107)**.  
+
+---
+
+🙏 **With Respect :**  
+We value every creator and every member.  
+If we ever make a mistake or any content owner asks for removal, we will take action immediately.  
+
+---
+
+🎉 **To Our Community :**  
+Thank you for using our bots, supporting our channels, and staying with us.  
+Your presence makes our community **stronger, happier, and more respectful** every day.  
+
+---
+
+💝 Stay connected, stay safe, and enjoy responsibly.  
+
+# ✨ By ~ [ABsUPs](https://t.me/ABsUPs)
+
 
