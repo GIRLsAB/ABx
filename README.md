@@ -98,3 +98,43 @@ Your presence makes our community **stronger, happier, and more respectful** eve
 # ✨ By ~ [ABsUPs](https://t.me/ABsUPs)
 
 
+
+# 📢 Welcome to Our Official 18+ Hangout Group
+
+<p align="center">
+  <a href="https://t.me/AXsXCs">
+    <img src="https://img.shields.io/badge/📢%20Join%20Group-ABx-blueviolet?style=for-the-badge&logo=telegram&logoColor=white&labelColor=2CA5E0" alt="Join Telegram Group"/>
+  </a>
+</p>
+
+
+💖 **Dear Members,**
+
+This group has been specially created as the **official hangout hub for adults (18+)**. Here you can chat, share, and connect freely with like-minded members. If any of our main groups face issues, you’ll still find updates and discussions here.
+
+---
+
+⚠️ **Important Note:**  
+👉 Strictly **18+ only**. If you are underage, please leave respectfully. This is a safe space for **adults only**.
+
+---
+
+⚖️ **Respect & Rights:**  
+We do not own any media, files, or shared content. All rights belong to the original creators. Our group exists only for **community interaction**, sharing, and fair use discussions.
+
+---
+
+🙏 **With Respect:**  
+We value every member. Please maintain mutual respect and a positive environment. If any mistake is made or if a content owner requests removal, we will take action immediately.
+
+---
+
+🎉 **To Our Community:**  
+Thank you for joining and supporting this adult hangout. Your presence makes the group **stronger, safer, and more enjoyable** every day.
+
+---
+
+💝 **Stay connected, respect everyone, and enjoy responsibly.**
+
+**By ~ [@ABsUPs](https://t.me/ABsUPs)**
+
