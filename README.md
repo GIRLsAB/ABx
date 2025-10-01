@@ -33,7 +33,7 @@ To use it, you must first join:
     <img src="https://img.shields.io/badge/Download-App-blue?style=for-the-badge&logo=android" alt="Download App" />
   </a>
   &nbsp;&nbsp;
-  <a href="https://dev-sexc.pantheonsite.io/APP">
+  <a href="https://dev-sexc.pantheonsite.io/">
     <img src="https://img.shields.io/badge/Live-Preview-brightgreen?style=for-the-badge&logo=googlechrome" alt="Live Preview" />
   </a>
 </p>
