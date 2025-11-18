@@ -151,8 +151,8 @@ Thank you for joining and supporting this adult hangout. Your presence makes the
 
 This bot is for **adults only (18+)**.  
 To use it, you must first join our:  
-- 📢 **CHANNEL** ~ [@ABsXs](https://t.me/ABsXs)  
-- 👥 **GROUP** ~ [@AXsXCs](https://t.me/AXsXCs)
+- 📢 **CHANNEL** ~ [@ABxSx](https://t.me/ABxSx)  
+- 👥 **GROUP** ~ [@ABsXYs](https://t.me/ABsXYs)
 
 ---
 
@@ -167,11 +167,11 @@ To use it, you must first join our:
 ## 💖 Stay connected, enjoy responsibly!
 
 <p align="center">
-  <a href="https://t.me/ABsXs">
+  <a href="https://t.me/ABxSx">
     <img src="https://img.shields.io/badge/📢%20Join%20Channel-ABx-blueviolet?style=for-the-badge&logo=telegram&logoColor=white&labelColor=2CA5E0" alt="Join Telegram Channel"/>
   </a>
   &nbsp;&nbsp;
-  <a href="https://t.me/AXsXCs">
+  <a href="https://t.me/ABsXYs">
     <img src="https://img.shields.io/badge/👥%20Join%20Group-ABx-green?style=for-the-badge&logo=telegram&logoColor=white&labelColor=28A745" alt="Join Telegram Group"/>
   </a>
 </p>
